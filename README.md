@@ -1,3 +1,0 @@
-# JJDANI
-# JJDANI
-# JJDANI
